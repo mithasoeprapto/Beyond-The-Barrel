@@ -1,28 +1,34 @@
 # Beyond The Barrel
-### Strategic Intelligence Excerpt — Licensed Access
+### Sovereign Energy Risk & SWF Intelligence — Licensed Access
 
-> **Systemic Supply Collapse**
-> Anchored by the 2026 Strait of Hormuz shock, this excerpt outlines multi‑commodity chokepoint failure‑modes and downstream friction extending far beyond crude oil.
+> **01. Systemic Supply Collapse**
+> Anchored by the 2026 Strait of Hormuz shock, this briefing outlines multi‑commodity chokepoint failure‑modes and downstream friction extending far beyond crude oil.
 
 ---
 
-## 02. Strategic Intelligence Asset (Excerpt)
+## 02. Strategic Intelligence Asset
 
-   **Beyond The Barrel: Navigating Multi‑Commodity Supply Collapse**  
-   Focus: LNG shortfalls, fertilizer evaporation, methanol/polymers scarcity, and industrial feedstock collapse.  
-   Valuation: £2,500 (Executive Briefing Layer)  
-   Access: Paid — see Licensing section.
+**Excerpt: Beyond The Barrel — Navigating Multi‑Commodity Supply Collapse**  
+Focus: LNG shortfalls, fertilizer evaporation, methanol/polymers scarcity, and industrial feedstock collapse.  
+Valuation: £2,500 (Executive Briefing Layer)  
+Access: Paid — see Licensing section.
+
+**Full Product: Beyond The Barrel (Sovereign Energy Risk & SWF Intelligence)**  
+Tiered Licensing Model — see below.
 
 ---
 
 ## 03. Institutional Licensing
 
-*Excerpt is available via One‑Time Institutional License only.*
+*Beyond The Barrel is available via tiered licensing models:*
 
-* **Excerpt License:** £2,500 (Executive Briefing Layer, Single Entity Use)  
-* **Unified Technical Annex:** Price on Application (POA)  
-* **Full Terms:** Refer to the [Commercial Licensing Pack](https://github.com/mithasoeprapto/Commercial-Licensing)  
-* **Delivery:** Encrypted Digital Asset / Asynchronous  
+- **Personal Access:** From £50,000  
+- **Single Entity License:** From £225,000  
+- **Enterprise License:** From £600,000  
+- **Technical Annex:** Price on Application (POA)  
+
+*Delivery:* Encrypted Digital Asset / Asynchronous  
+*Full Terms:* Refer to the [Commercial Licensing Pack](https://github.com/mithasoeprapto/Commercial-Licensing)
 
 ---
 
