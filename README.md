@@ -1,7 +1,7 @@
 # Beyond The Barrel
 ### Strategic Intelligence Excerpt — Licensed Access
 
-> **01. Systemic Supply Collapse**
+> **Systemic Supply Collapse**
 > Anchored by the 2026 Strait of Hormuz shock, this excerpt outlines multi‑commodity chokepoint failure‑modes and downstream friction extending far beyond crude oil.
 
 ---
