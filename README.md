@@ -2,14 +2,14 @@
 ### Sovereign Energy Risk & SWF Intelligence — Licensed Access
 
 > **Systemic Supply Collapse**
-> Anchored by the 2026 Strait of Hormuz shock, this briefing outlines multi‑commodity chokepoint failure‑modes and downstream friction extending far beyond crude oil.
+> Anchored by the 2026 Strait of Hormuz shock, this briefing outlines multi‑commodity chokepoint failure modes and downstream friction extending far beyond crude oil.
 
 ---
 
 ## 02. Strategic Intelligence Asset
 
 **Excerpt: Beyond The Barrel — Navigating Multi‑Commodity Supply Collapse**  
-Focus: LNG shortfalls, fertilizer evaporation, methanol/polymers scarcity, and industrial feedstock collapse.  
+Focus: LNG shortfalls, fertiliser evaporation, methanol/polymers scarcity, and industrial feedstock collapse.  
 Valuation: £2,500 (Executive Briefing Layer)  
 Access: Paid — see Licensing section.
 
