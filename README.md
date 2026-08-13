@@ -10,7 +10,7 @@
 
 **Excerpt: Beyond The Barrel — Navigating Multi‑Commodity Supply Collapse**  
 Focus: LNG shortfalls, fertiliser evaporation, methanol/polymers scarcity, and industrial feedstock collapse.  
-Valuation: £2,500 (Executive Briefing Layer)  
+Valuation: £3,000 (Executive Briefing Layer)  
 Access: Paid — see Licensing section.
 
 **Full Product: Beyond The Barrel (Sovereign Energy Risk & SWF Intelligence)**  
